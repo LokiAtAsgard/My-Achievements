@@ -8,9 +8,10 @@
 - Graduated with the rank of 136th out of 568 students (2022)
 - 93.361 GWA (2022)
 - With Honors from Grade 11-12 (2020-2022)
+- 
 ## Junior High School
 ### Grade 10 (2019-2020)
--Academic Excellence Awardee
+- Academic Excellence Awardee
 - Perfect Attendance 
 - Officer in the English and Science Club
 - Service Awardee
@@ -30,6 +31,7 @@
 ### Grade 7 (2016-2020)
 - Academic Excellence Awardee
 - MTAP Participant
+
 ## Elementary
 ### Grade 6 (2015-2016)
 - 2nd Honorable Mention
@@ -47,6 +49,7 @@
 - Top 4
 ### Grade 1 (2010-2011)
 - Top 5
+
 ## Pre-Elementary (2009-2010)
 -Best in Sensory Perceptual Skills
 - Best in Reading
