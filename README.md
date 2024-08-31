@@ -8,7 +8,7 @@
 - Graduated with the rank of 136th out of 568 students (2022)
 - 93.361 GWA (2022)
 - With Honors from Grade 11-12 (2020-2022)
-- 
+  
 ## Junior High School
 ### Grade 10 (2019-2020)
 - Academic Excellence Awardee
